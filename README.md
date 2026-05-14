@@ -1,2 +1,4 @@
-# trump-everywhere
-Trump, trump everywhere. WTF? Silus Gaming World, grift by Drumpf, lies, and liars.
+# Trump Everywhere
+Trump, Trump everywhere. WTF? Silus Gaming World, grift by Tumpp, lies, and liars.
+His followers embrace indecency.
+Clap when he defames heroes, lies, steals.
